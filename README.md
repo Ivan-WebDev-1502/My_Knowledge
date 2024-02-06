@@ -12,8 +12,6 @@
 
 - 🤝 I’m looking for help with **junior projects**
 
-- 📫 How to reach me **ivan.jovcevski@yahoo.com**
-
 - ⚡ Fun fact **I want to learn**
 
 <br>
